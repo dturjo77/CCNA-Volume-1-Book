@@ -1,4 +1,6 @@
+https://share.gemini.google/sz1kNBT1tfFw
 
+---
 
 ## ১. TCP/IP-এর ইতিহাস (The Backstory)
 
