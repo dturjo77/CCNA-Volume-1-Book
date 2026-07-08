@@ -1,3 +1,6 @@
+https://share.gemini.google/b2GwWJYa0v1L
+
+---
 
 ## 🛠️ Cisco's 4-Step IP Troubleshooting Model
 
