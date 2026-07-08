@@ -1,3 +1,6 @@
+https://share.gemini.google/zs7ZTvgnztDS
+
+---
 
 ## ১. সাবনেটিং (Subnetting) কেন দরকার? (The "Why")
 
